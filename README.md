@@ -1,4 +1,5 @@
-Hellooooo, I am Parsa and I am 23 years old 🤓
+Hellooooo😘
+I am Parsa and I am 23 years old 🤓
 I am interested in programming and front-end site development 👀
 I am learning next.js 😥
 I am looking for cooperation in the field of creating attractive works with the help of css 😍🌒
